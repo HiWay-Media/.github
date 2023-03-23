@@ -14,7 +14,7 @@ We help TV networks, clubs, federations, leagues, and organizations evolve by de
 ## People over process
 Our employees are the foundation of our company. We are a diverse and highly collaborative group with unique interests and skills making up our very own Dream Team.
 
-## We are Multi-Cultural
+## We are Multi-Cultural
 We believe the individual perspectives and diverse backgrounds of our team members generate a wider range of creative ideas and a willingness to ask difficult questions.
 
 ## We are diverse
