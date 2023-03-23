@@ -9,3 +9,13 @@ We imagine, design, and develop digital ecosystems tailored to our clients' need
 
 ## Our mission
 We help TV networks, clubs, federations, leagues, and organizations evolve by developing tailored digital ecosystems that generate value for them and their audiences.
+
+
+## People over process
+Our employees are the foundation of our company. We are a diverse and highly collaborative group with unique interests and skills making up our very own Dream Team.
+
+## We are Multi-Cultural
+We believe the individual perspectives and diverse backgrounds of our team members generate a wider range of creative ideas and a willingness to ask difficult questions.
+
+## We are diverse
+Outside the office, we are travelers, soccer players, fans, film buffs, musicians, artists, and sports lovers.
